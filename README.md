@@ -1,6 +1,6 @@
 Heyyo mamen!!
 <p>
-I commit every day, everything, and every morning.
+I commit every day, every time, and every morning.
 </p>
 
 
